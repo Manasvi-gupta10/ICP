@@ -1,0 +1,1 @@
+Daily assignments of ICP
